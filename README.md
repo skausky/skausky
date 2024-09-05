@@ -1,4 +1,4 @@
-### Hi there 👋
+### All my good repos are private⚡⚡
 
 <!--
 **skausky/skausky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
